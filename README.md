@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **deepvanapariya88@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1T6EpHte0yYPyn2WGROBKn_yIXS359lHZ/view?usp=sharing](https://drive.google.com/file/d/1IiXao5h4RWdHwW3Rjdhn5mNAwk6Mk-fD/view?usp=sharing)]
+- 📄 Know about my experiences [[[https://drive.google.com/file/d/1T6EpHte0yYPyn2WGROBKn_yIXS359lHZ/view?usp=sharing](https://drive.google.com/file/d/12ygp-rG3UJaqrpdcyfST-Pvoq1E97WiD/view?usp=sharing)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
